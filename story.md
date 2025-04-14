@@ -1,1 +1,1 @@
-Hemam Kassahun is an international student from Addis Ababa, Ethiopia.
+Hemam Kassahun moved to Chicago to explore artificial intelligence and robotics.
