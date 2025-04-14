@@ -1,1 +1,1 @@
-Hemam Kassahun is an international student from Addis Ababa, Ethiopia.
+Once upon a time, Hemam Kassahun, an international student from Ethiopia, arrived in Chicago to pursue her dream of studying Computer Science at DePaul University. She was passionate, curious, and ready to conquer the tech world. Every challenge was a chance to learn, and every line of code brought her closer to her goals.
